@@ -1,3 +1,3 @@
 # Laravel
 
-https://mega.nz/folder/nhQiwTID#TC3Xs_kCSwQZUC1Vn0fq7w
+https://mega.nz/folder/20gAySIB#c4RP4bYu62Rx7_s5CZO1lQ
